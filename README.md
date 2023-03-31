@@ -1,0 +1,2 @@
+# Midjourney_AI_drawing-tutorial
+Midjourney中文绘画咒语教程
